@@ -1,1 +1,0 @@
-# Veri-Yapilari-1.Odev
